@@ -1,0 +1,1 @@
+# moprog-class-a
